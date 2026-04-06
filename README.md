@@ -37,4 +37,7 @@ This task helped me understand real-world collaborative design workflows, includ
 
 # OUTPUT
 
-<img width="1728" height="1247" alt="Task -3" src="https://github.com/user-attachments/assets/62be8dd4-2e3d-4736-8bf0-2e4483d8e117" />
+![WhatsApp Image 2026-04-06 at 1 04 52 PM](https://github.com/user-attachments/assets/a99c3aaa-9819-4caa-9fcd-c7f77e97ed8a)
+
+![WhatsApp Image 2026-04-06 at 1 04 52 PM (1)](https://github.com/user-attachments/assets/fdd0968e-9e6e-4806-8ead-8a073daa9ccb)
+
